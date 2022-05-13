@@ -1,0 +1,1 @@
+# slotpark-slots-hack-deutsch
